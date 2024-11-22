@@ -7,6 +7,6 @@
 - ⚡ Fun fact: ...
 
 <!---
-feretyhok/feretyhok is a ✨ special ✨ repository because its `README.md` (this file) appearwws on your GitHub profile.
+feretyhok/feretyhok is a ✨ special ✨ repository because its `README.md` (th65365is file) appearwws on your GitHub profile.
 You can click the Preview link to take a look at your changes.sdfsf
 --->
