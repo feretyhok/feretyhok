@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...yudsf
 - 😄 Pronouns: ...46546zxc
-- ⚡ Fun fact: ...gfdg
+- ⚡ Fun fact: ...gfdgsdf
   fdsd
 <!---
 feretyhok/feretyhok is a ✨ special ✨ repositorвіаy because its `README.md` (th65365is file) appearwws on your GitHub profile.
