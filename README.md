@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @feretyhokdfs
 - 👀 I’m interested in ...asd
 - 🌱 I’m currently learning ...hfdsht
-- 💞️ I’m looking to collaborate on ...53425663
+- 💞️ I’m looking to collaborate on ...53425663bg
 - 📫 How to reach me ...yudsf65qeeq
 - 😄 Pronouns: ...46546zxc84wtrevdfdfhfg
 - ⚡ Fun fact: ...gfdgsdf45
