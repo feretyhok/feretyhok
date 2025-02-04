@@ -3,7 +3,7 @@ ghmgh- 👋 Hi, I’m @feretyhokdfs
 - 🌱 I’m currently learning ...hfdsht
 - 💞️ I’m looking to collaborate on ...53425663bg
 - 📫 How to reach me ...yudsf65qeeq
-- 😄 Pronouns: ...46546zxc84wtrevdfdfhfg
+- 😄 Pronouns: ...46546zxc84wtrevdfdfhfgwerds
 - ⚡ Fun fact: ...gfdgsdf45
   fdsddssdf2222ngfbh
 <!---sffsd,u,xcv25bgffg
