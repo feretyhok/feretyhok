@@ -3,7 +3,7 @@ vegrdfdfvghmgh- 👋 Hi, I’m @feretyhokdfs
 - 🌱 I’m currently learning ...hfdshtgfbfg
 - 📫 How to reach me ...yudsf65qeeqxvcvclkkkcvcvc
 - 😄 Pronouns: ...46546zxc84wtrevdfdfhfgwerds
-- ⚡ Fun fact: ...gfdgsdf45wrew747ddfbsdfsdthgf
+- ⚡ Fun fact: ...gfdgsdf45wrew747ddfbsdfsdthgffsd
 --->fsgwre325dfdf
 gcc
 fd
