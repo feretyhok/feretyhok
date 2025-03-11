@@ -5,6 +5,6 @@ vegrdfdfvghmgh- 👋 Hi, I’m @feretyhokdfs
 - 😄 Pronouns: ...46546zxc84wtrevdfdfhfgwerdsetrt
 - ⚡ Fun fact: ...gfdgsdf45wrew747ddfbsdfsdthgffsd
 --->fsgwre325dfdf
-gcc
+gcвfgf
 fdthyh
 fffd
