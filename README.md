@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...hfdshtgfbfgtrger
 - 📫 How to reach me ...yudsf65qeeqxvcvclkkkcvcvcgr
 - 😄 Pronouns: ...46546zxc84wtrevdfdfhfgwerdsetrtbfggfeewbbbk,jasasak,jjcxxx
-- ⚡ Fun fact: ...gfdgsdf45wrew747ddfbsdfsdthgffsdbgfgf43htrrhhrgsdfds528
+- ⚡ Fun fact: ...gfdgsdf45wrew747ddfbsdfsdthgffsdbgfgf43htrrhhrgsdfds528512526
 --->fsgwre325dfdftgbxcc
 gcвfgf
 fdthyh
