@@ -5,8 +5,8 @@ u,,ukmj,werwrewre5445vegrdfdfvghmgh- 👋 Hi, I’m @feretyhokdfs
 - 😄 Pronouns: ...46546zxc84wtrevdfdfhfgwerdsetrtbfggfeewbbbk,jasasak,jjcxxxfgfgxcvcxcxfsdsdsxcvxcxxhngnghddddghgg
 - ⚡ Fun fact: ...gfdgsdf45wrew747ddfbsdfsdthgffsdbgfgf43htrrhhrgsdfds528512526rthrthfd
 --->fsgwre325dfdftgbxccxcvvcxcxv
-gcвfgfапррпаапxcvxcvcxvdgfdfdffwesfdsfdf
-fdthyhnfgbbvdf
+gcвfgfапррпаапxcvxcvcxvdgfdfdffwesfdsfdfcvb
+fdthyhnfgbbvdfcvbcvb
 fffdsdfdsghnjgjngj
 
 3,dgfddffg
