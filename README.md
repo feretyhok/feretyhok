@@ -1,4 +1,4 @@
-;u,,ukmj,werwrewre5445vegrdfdfvghmgh- 👋 Hi, I’m @feretyhokdfs
+gfg;u,,ukmj,werwrewre5445vegrdfdfvghmgh- 👋 Hi, I’m @feretyhokdfs
 - 👀 I’m interested in ...asd
 - 🌱 I’m currently learning ...hfdshtgfbfgtrgererter
 - 📫 How to reach me ...yudsf65qeeqxvcvclkkkcvcvcgradwsdcvbcvfdcc
@@ -9,5 +9,5 @@ gcвfgfапррпаапxcvxcvcxvdgfdfdffwesfdsfdfcvb
 fdthyhnfgbbvdfcvbcvb
 fffdsdfdsghnjgjngj
 
-3,dgfddffg
+3,dgfddffgghfhg
 sgrrrs
