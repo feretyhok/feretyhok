@@ -6,8 +6,8 @@ dddeederfewfgfg;u,,ukmj,werwrewre5445vegrdfdfvghmgh- 👋 Hi, I’m @feretyhokdf
 - ⚡ Fun fact: ...gfdgsdf45wrew747ddfbsdfsdthgffsdbgfgf43htrrhhrgsdfds528512526rthrthfd
 --->fsgwre325dfdftgbxccxcvvcxcxv
 gcвfgfапррпаапxcvxcvcxvdgfdfdffwesfdsfdfcvbdgfd
-fdthyhnfgbbvdfcvbcvbghfhghfgh
+fdthyhnfgbbvdfcvbcvbghfhghfgh.llj
 fffdsdfdsghnjgjngjdfdfdwefew
-
+.jkk.j
 3,dgfddffgghfhg
 sgrrrs
